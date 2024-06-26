@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on cool projects.
 - 📫 How to reach ... me you can't...
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: "Insert fun fact".
+- ⚡ Fun fact: Venus is the only planet to spin clockwise.
 
 <!---
 epinder-qld/epinder-qld is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
