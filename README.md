@@ -2,7 +2,7 @@
 - 👀 I’m interested in UX/UI Design, videogames, sports and reading.
 - 🌱 I’m currently learning how to improve as a UX designer but also wanting to learn UI development.
 - 💞️ I’m looking to collaborate on cool projects.
-- 📫 How to reach ... me you can't...
+- 📫 How to reach me....
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: Venus is the only planet to spin clockwise.
 
